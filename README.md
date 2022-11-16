@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @annnnnev
+- 👀 I’m interested in computers, gaming
+- 🌱 I’m currently learning JavaScript
+- 📫 Reach me on Discord @Ann#2099
